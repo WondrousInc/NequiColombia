@@ -1,2 +1,0 @@
-# NequiColombia
-Lo mejor
